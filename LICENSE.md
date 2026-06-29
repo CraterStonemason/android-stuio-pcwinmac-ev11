@@ -1,4 +1,4 @@
-# 
+# Instantâneo Android Studio temas para Mac OS | Profissional Android Studio temas para PC Windows. Com ferramentas de replicação e logs de contêiner — otimizado para máximo desempenho em cada plataforma.
 
 
 
